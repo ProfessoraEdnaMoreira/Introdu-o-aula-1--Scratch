@@ -1,5 +1,9 @@
-# Introdu-o-aula-1--Scratch
+# AULAS DE TECNOLOGIA E INOVAÇÃO - PROJETO SCRATCH
 
 6º A
+
+6º B
+
+6º F
 
 Profª - Edna
